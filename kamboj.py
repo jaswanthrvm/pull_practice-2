@@ -1,0 +1,1 @@
+"he is a one of the contender in purple cap list"
